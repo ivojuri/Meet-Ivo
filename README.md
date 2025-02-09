@@ -7,4 +7,3 @@
 ## 🔗 Collaborating on BlueSky to share space research 
 ## 💬 Reach me: bsky.app/profile/ivojuri.bsky.social
 ## 👨 Pronouns: he/him
-## 💡 Random fact: I have a car which is the second largest in our solar system... I got a Saturn!
