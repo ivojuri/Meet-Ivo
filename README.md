@@ -8,3 +8,4 @@
 ### 🔗 Collaborating on BlueSky to share space research 
 ### 💬 Reach me: [BlueSky](bsky.app/profile/ivojuri.bsky.social)
 ### 👨 Pronouns: he/him
+### 🤓 Fun fact: "Mars is home to the largest volcano in the solar system, Olympus Mons."
