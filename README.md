@@ -4,8 +4,8 @@
 ### 🌐 Network Engineer - CCNA
 ### 📢 Social Media Specialist - Facebook Ads Manager
 ### 👀 Exploring:
-#### 🌍 Earth and environmental sciences (Feb 3-28, Mar 1-31, 2025)
-#### 🌍 Advanced Earth and Space Science (Feb 3-28, Mar 1-31, 2025)
+#### 🌍 Advanced Earth and Space Science (Feb 3-28, Mar 1-6, 2025)
+#### 🌍 History of Mathematics (Mar 6-31, 2025)
 ### 🌱 Learning space science for 28 days
 ### 🔗 Collaborating on BlueSky to share space research 
 ### 💬 Reach me: [BlueSky](bsky.app/profile/ivojuri.bsky.social)
