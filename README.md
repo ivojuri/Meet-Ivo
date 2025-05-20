@@ -6,6 +6,7 @@
 ### 👀 Exploring:
 #### 🌍 Advanced Earth and Space Science (Feb 3-28, Mar 1-6, 2025)
 #### 🌍 History of Mathematics (Mar 6-31, April 1-15, 2025)
+#### 🧘‍♀️ Stress Managment (April 18, May 20)
 ### 🌱 Learning space science for 28 days
 ### 🔗 Collaborating on BlueSky to share space research 
 ### 💬 Reach me: [BlueSky](bsky.app/profile/ivojuri.bsky.social)
