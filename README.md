@@ -4,10 +4,10 @@
 ### 🌐 Network Engineer - CCNA
 ### 📢 Social Media Specialist - Facebook Ads Manager
 ### 👀 Exploring:
-#### 🌍 Advanced Earth and Space Science (Feb 3-28, Mar 1-6, 2025)
-#### 🌍 History of Mathematics (Mar 6-31, April 1-15, 2025)
-#### 🧘‍♀️ Stress Managment (April 18, May 20)
-#### 🎯 Digital Marketing (May 20, Jun 20)
+#### 🌍 Advanced Earth and Space Science (Feb 3 to Mar 6, 2025)
+#### 🌍 History of Mathematics (Mar 6 to April 15, 2025)
+#### 🧘‍♀️ Stress Managment (April 18 to May 20, 2025)
+#### 🎯 Digital Marketing (May 20 to Jun 20, 2025)
 ### 🔗 Collaborating on BlueSky to share space research 
 ### 💬 Reach me: [BlueSky](bsky.app/profile/ivojuri.bsky.social)
 ### 👨 Pronouns: he/him
