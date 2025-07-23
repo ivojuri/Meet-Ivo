@@ -9,6 +9,7 @@
 #### 🧘‍♀️ Stress Managment (April 18 to May 20, 2025)
 #### 🎯 Digital Marketing (May 20 to Jun 20, 2025)
 #### 🎯 Digital Marketing (Jun 25 to Jul 25, 2025)
+#### 🎯 Digital Marketing (Jul 25 to Aug 15, 2025)
 ### 🔗 Collaborating on BlueSky to share space research 
 ### 💬 Reach me: [BlueSky](bsky.app/profile/ivojuri.bsky.social)
 ### 👨 Pronouns: he/him
