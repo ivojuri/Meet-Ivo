@@ -17,6 +17,6 @@
 #### 🎯 Digital Marketing (Aug 25 to Sep 01, 2025) - Passed on the test 100-101 Meta Certified Digital Marketing Associate
 #### 🎯 Digital Marketing (Sep 02 to Oct 02, 2025) - Studying for Meta Certified Media Measurement Specialist
 #### 🎯 Digital Marketing (Sep 02 to Oct 02, 2025) - Studying for Meta Certified Media Measurement Specialist
-**#### 🎯 Digital Marketing (Oct 02 to Oct 26, 2025) - ______ on the test Meta Certified Media Measurement Specialist
+#### 🎯 Digital Marketing (Oct 02 to Nov 02, 2025) - Studying for Meta Certified Media Measurement Specialist
 
 
