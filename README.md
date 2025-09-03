@@ -4,12 +4,12 @@
 ### 👨 Pronouns: he/him
 ### 🌐 Network Engineer - CCNA
 ### 📢 Social Media Specialist - Facebook Ads Manager
+### 🔗 Collaborating on BlueSky to share space research 
+### 💬 Reach me: [BlueSky](bsky.app/profile/ivojuri.bsky.social)
+### 🤓 Fun fact: "Mars is home to the largest volcano in the solar system, Olympus Mons."
 ### 👀 Exploring:
 #### 🌍 Advanced Earth and Space Science (Feb 3 to Mar 6, 2025)
 #### 🌍 History of Mathematics (Mar 6 to April 15, 2025)
-###### 🔗 Collaborating on BlueSky to share space research 
-###### 💬 Reach me: [BlueSky](bsky.app/profile/ivojuri.bsky.social)
-###### 🤓 Fun fact: "Mars is home to the largest volcano in the solar system, Olympus Mons."
 #### 🧘‍♀️ Stress Managment (April 18 to May 20, 2025)
 #### 🎯 Digital Marketing (May 20 to Jun 20, 2025) - Studying for 100-101 Meta Certified Digital Marketing Associate
 #### 🎯 Digital Marketing (Jun 25 to Jul 25, 2025) - Studying for 100-101 Meta Certified Digital Marketing Associate
